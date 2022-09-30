@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning about life ;)
 - 💞️ I’m looking to collaborate on ieee
-- 📫 How to reach me 1415eso.ord6.manu@gmail.com
+- 📫 How to reach me manu365manu@gmail.com
 
 Monke
 
